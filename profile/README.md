@@ -1,3 +1,3 @@
-# Software Advanced Research Community
+# Software Advancement Research Community
 
 WIP. More information will be uploaded soon.
